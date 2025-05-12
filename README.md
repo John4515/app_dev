@@ -1,7 +1,6 @@
 # My Favorite Series: Stranger Things
 
-**Genre:** Sci-Fi, Horror, Drama 
-
+**Genre:** Sci-Fi, Horror, Drama  
 **Main Cast:** Millie Bobby Brown, Finn Wolfhard, Winona Ryder  
 **Why I love it:**
 - Unique storyline
